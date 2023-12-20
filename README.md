@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Himan-shu15
-- 👀 I’m interested in playing cricket
+- 👀 I’m interested in playing badminton
 - 🌱 I’m currently learning new tech skills
 - 💞️ I’m looking to collaborate on MNC
 - 📫 You can contact me via caling
